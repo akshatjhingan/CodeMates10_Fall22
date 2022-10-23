@@ -11,9 +11,9 @@ Shin beef, onions, dried oregano, white pepper, stock powder, bay leaves, salt
 
 
 ## Equipment needed:
-Deep pot
-Knife
-Cutting Board
+- Deep pot
+- Knife
+- Cutting Board
 
 
 ## Steps for preparation:
