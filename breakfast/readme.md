@@ -12,6 +12,7 @@ Package bow tie pasta, 1 teaspoon olive oil, 2 cloves garlic, minced, 2 skinless
 
 ## Equipment needed:
 - Large pot
+- Drainer
 - Knife
 - Cutting Board
 
