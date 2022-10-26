@@ -15,6 +15,7 @@ Package bow tie pasta, 1 teaspoon olive oil, 2 cloves garlic, minced, 2 skinless
 - Drainer
 - Knife
 - Cutting Board
+- Skillet
 
 
 ## Steps for preparation:
