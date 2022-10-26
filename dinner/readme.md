@@ -15,6 +15,7 @@ Shin beef, onions, dried oregano, white pepper, stock powder, bay leaves, salt
 - Stirrer/ Spoon
 - Knife
 - Cutting Board
+- Measuring Cup
 
 
 ## Steps for preparation:
